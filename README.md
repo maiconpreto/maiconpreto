@@ -8,4 +8,4 @@ Você pode entrar em contato comi
 barros.maicon@escola.pr.gov.br
 @maicopreto
 
-![_](https://giphy.com/gifs/namslam-1wqYonEBtues7jlngs)
+![](https://giphy.com/gifs/namslam-1wqYonEBtues7jlngs)
